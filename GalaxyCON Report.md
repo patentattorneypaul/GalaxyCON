@@ -1,4 +1,7 @@
 # GalaxyCon Richmond 2026 — Convention Comparison Report
+## Paul's Take in a Nutshell
+Seems like this conference is really designed for those who want to meet celebrities and engage with pop culture fandom, rather than for those who are primarily interested in gaming or music. If you're a fan of the guests and want to experience the celebrity interactions, it's a great option given its proximity. But if you're looking for deep gaming experiences or live music, the other cons you've attended (Gen Con, PAX Unplugged, MAGFest) will likely offer more of what you enjoy. The add-on pricing for celebrity experiences at GalaxyCon can make it more expensive than it initially appears, so it's important to consider how much value you place on those interactions when deciding whether to attend.
+https://youtu.be/K2flchNw8dI
 
 ## What Is GalaxyCon Richmond?
 
